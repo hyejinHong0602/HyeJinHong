@@ -1,4 +1,4 @@
-# 📄 Curriculum Vitae - Hong HyeJin
+# 📄 Curriculum Vitae - Hong HyeJin (업데이트중)
 
 
 > **AI/ML Engineer** | 
